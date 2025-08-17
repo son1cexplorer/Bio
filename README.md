@@ -5,7 +5,7 @@
   📫 Contact: ihorzihora@rambler.ru
 </p>
 
----soe;rjhge
+---
 
 ### 🎯 About Me
 
